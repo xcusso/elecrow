@@ -1,0 +1,1 @@
+Copia del firmware original
